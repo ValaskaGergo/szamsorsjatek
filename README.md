@@ -1,0 +1,2 @@
+# szamsorsjatek
+figure - 1 
